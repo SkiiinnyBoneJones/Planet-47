@@ -1,3 +1,3 @@
-# Planet-47
+# Weed Thots
 
 It's Real...Isreal
